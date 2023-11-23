@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zephaia
-- 👀 I’m interested in Articiatal Life.
+- 👀 I’m interested in Articiaal Life.
 - 🌱 I’m currently learning Plastics, and Woodwork.
 - 💞️ I’m looking to collaborate on Stefanie, and Edwin.
 - 📫 How to reach me zhir@mail.ee .
